@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ines-Cypreni
+- 👀 I’m interested in new technology, green it and communication.
+- 💞️ I’m looking to collaborate on expertise of code with Key Consulting
